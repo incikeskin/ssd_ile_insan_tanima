@@ -1,1 +1,0 @@
-# ssd_ile_insan_tanima
